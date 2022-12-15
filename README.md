@@ -1,0 +1,1 @@
+# Python22_23_zaliczenie_Gerard_Jozefowski
